@@ -6,7 +6,7 @@ Computer engineering
 
 ## 💬 Languages
 
-**Thailand**: Native <br>
+**Thai**: Native <br>
 **English**
 <br><br>
 
